@@ -1,1 +1,1 @@
-# Bieginner-Level-Task-LGM-
+# Beginner-Level-Task-LGM-
